@@ -6,4 +6,4 @@ there is nothing much on here public, hopefully thatll change but most of my cur
 
 you might know me from random stuff i do.
 
-[website](https://kibty.town) [contact](https://kibty.town/contact)
+[website](https://eva.ac) [contact](https://eva.ac/contact)
